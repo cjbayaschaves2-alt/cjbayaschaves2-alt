@@ -19,7 +19,7 @@ Here are some ideas to get you started:
   
 - This GitHub is for new projects about things other than university; it's for my life and my dreams.
 
-- I´m looking to collaborate on proyect that chance the world or hance the lives to be better
+- I´m looking to collaborate on proyect that chance the world or chance the lives to be better
 
 - I love the futbol soccer, my mind think always like a strategy, work in group and win. And I associate it with my career. ⚽
 
